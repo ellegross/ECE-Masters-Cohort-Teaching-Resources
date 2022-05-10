@@ -9,3 +9,5 @@ Here are a few helpful websites that provide useful information about how to wri
   - https://www.theempowerededucatoronline.com/2015/05/writing-effective-and-interesting-newsletters-for-parents.html/
   - https://easyteachingtools.com/what-to-put-in-your-parent-newsletter.html
   - https://www.finalsite.com/blog/p/~board/b/post/10-school-newsletter-ideas
+
+Additionally, I have included a Sample Newsletter to show how clear and concise it should be for families to be able to access easily. 
