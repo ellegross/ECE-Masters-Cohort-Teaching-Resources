@@ -25,3 +25,32 @@ UBD unit examples :). https://colostate.instructure.com/courses/134184/assignmen
 These resources are related to our courses to create a culutrally responsive learning enviormnet alongside a collabrative curriculum. 
 
 Educ 573- Differentating Instruction for Diverse Needs
+Models of Teaching Lesson Plan Differentiation.docx https://colostate.instructure.com/courses/125903/assignments/1578079
+Reading for CRA-these kids are out of control
+https://colostate.instructure.com/courses/125898/files/19878943?module_item_id=3816112 .pdf
+Download Reading for CRA-these kids are out of control.pdf (5.53 MB)
+Tool kit for teaching :) https://colostate.instructure.com/courses/125898/files/19878938?module_item_id=3816108 Download ToolKit.pdf 
+Self reflection survey for culturally diverse teaching
+https://docs.google.com/forms/d/e/1FAIpQLSf0DPIiytTJClJlxPQ5-Nbpwk5Ok8LaC5Et8LwIQK_T1E1W2g/viewform
+
+Cultrurally relavant text for classrooms https://www.florenceisd.net/225697_4
+
+Teaching Race https://cft.vanderbilt.edu/guides-sub-pages/teaching-race/
+
+Resource Videos https://cft.vanderbilt.edu/guides-sub-pages/effective-educational-videos/
+
+Inclusive Classrooms https://bokcenter.harvard.edu/inventory-inclusive-teaching-practices
+
+Diversity and inclusive teaching https://cft.vanderbilt.edu/guides-sub-pages/diversity/
+
+Strategies for teaching Diverse Learners https://repository.library.brown.edu/studio/collections/1041/
+
+Culturally Relevant Curriculum and Culturally Responsive Schools Toolkit http://dignityinschools.org/crctk
+
+EPSD Culturally Responsive Teaching and ELD Professional Learning Courses
+https://www.cde.state.co.us/educatortalent/elprogram-estes
+
+Educational: http://www.pbs.org/race/000_General/000_00-Home.htm 
+https://www.prodigygame.com/main-en/blog/culturally-responsive-teaching/
+https://www.learningforjustice.org/topics/race-ethnicity
+https://uwm.edu/education/institute-urban-edu/culturally-relevant-teaching-resources-for-educators/
