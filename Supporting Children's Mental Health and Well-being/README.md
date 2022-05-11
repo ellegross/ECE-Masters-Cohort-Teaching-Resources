@@ -15,7 +15,10 @@ Every morning I would include a quick 2-5 minute mindfulness moment using either
 
 When a student consistently displayed a particular behavior (crying, walking around the room, shouting out, refusal) and was unable to use their calming strategies mentioned earlier, extra support was likely necessary. Throughout student teaching I was able to use a reinforcement and reward motivation survey created by The Psychologist Counselor (available on Teachers Pay Teachers) to attempt and understand the needs of the previous mentioned students.
 
+
 ![61uReIPHeRL](https://user-images.githubusercontent.com/105298169/167891828-524f2918-b674-40b9-8e93-b09fad758a78.jpeg)
+
+<h3> Websites </h3>
 
 >   1. https://www.teacherspayteachers.com/Product/Motivation-Survey-find-out-what-ACTUALLY-motivates-your-toughest-students-3213200 (Reinforcement and Reward Motivation Survey- The Psychologist Counselor). When utilizing this resource, a teacher will tally how many times a student chose a motivational area (i.e. adult attention), identify which 1-3 areas were selected most often, and refer to potential practical reward/ reinforcement ideas.
 >   2. https://www.cde.state.co.us/cdesped/sd-emotional_sed_resources
