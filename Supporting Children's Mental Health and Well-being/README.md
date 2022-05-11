@@ -11,7 +11,7 @@ While reading ***Culturally Responsive Teaching and The Brain*** by Zaretta Hamm
 2. **Relationships**- Gain students trust (peace circle, one-on-one, walk and talks).
 3. **Being Flexible**- What does the student need in that moment? (cozy corner, snack, break). 
  
-During student teaching I was able to encourage students social and emotional growth by reiterating our classroom ***calming strategies*** such as, take a deep breath, walk away, saying "please stop", ignore, and find a new friend. 
+Every morning I would include a quick 2-5 minute mindfulness moment using either our breathing ball or a Go Noodle https://www.youtube.com/watch?v=fTzXFPh6CPIDuring. In addition during student teaching I was able to encourage students social and emotional growth by reiterating our classroom ***calming strategies*** such as, take a deep breath, walk away, saying "please stop", ignore, and find a new friend. 
 
 When a student consistently displayed a particular behavior (crying, walking around the room, shouting out, refusal) and was unable to use their calming strategies mentioned earlier, extra support was likely necessary. Throughout student teaching I was able to use a reinforcement and reward motivation survey created by The Psychologist Counselor (available on Teachers Pay Teachers) to attempt and understand the needs of the previous mentioned students.
 
