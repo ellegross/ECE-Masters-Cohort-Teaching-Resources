@@ -1,10 +1,12 @@
 <h1> Supporting Childrens Social and Emotional Well-being </h1> 
 
-![istockphoto-1166892018-612x612](https://user-images.githubusercontent.com/105298169/167666625-57aef361-4e03-4697-a991-fd155829d20c.jpeg)
+![istockphoto-1166892018-612x612](https://user-images.githubusercontent.com/105298169/167759002-45663cac-6d98-4e16-b79f-0cb92b88050b.jpeg)
 
-There are various ways to support and provide for our students overall well-being. Fortunately, the courses throughout this program provided physical resources as well as real-life experiences (practicum and student teaching) to practice what we've learned. Specifically, classes such as EDUC 625 (Contexts of Schooling) and 687E (Student Teaching) were most helpful when learning how to support our students social and emotional well-being. 
+There are various ways to support and provide for our students overall well-being. Fortunately, the courses throughout this program provided physical resources as well as real-life experiences (practicum and student teaching) to practice what we've learned. Specifically, classes such as EDUC 625 (Contexts of Schooling) and 687E (Student Teaching) were most helpful when learning how to support our students social and emotional well-being.
 
-In 
+
+In EDUC 625 I  
+
 ***
 <h3> Web Resources </h3>
 
