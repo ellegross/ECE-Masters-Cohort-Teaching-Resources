@@ -9,9 +9,11 @@ While reading ***Culturally Responsive Teaching and The Brain*** by Zaretta Hamm
 
 1. **Community Building**- Providing a space or enviornment where learners can flourish socially and intellectually. Students are more willing to take risks (be vulnerable) in settings that mirror their interests/ understandings (be intentional with classroom set up).
 2. **Relationships**- Gain students trust (peace circle, one-on-one, walk and talks).
-3. **Being Flexible**- What does the student need in that moment (cozy corner, a snack, a break). 
+3. **Being Flexible**- What does the student need in that moment? (cozy corner, a snack, a break). 
  
-During student teaching I was able to encourage students social and emotional growth by reiterating our ***calming strategies*** such as, take a deep breath, walk away, saying "please stop", ignore, and find a new friend. 
+During student teaching I was able to encourage students social and emotional growth by reiterating our classroom ***calming strategies*** such as, take a deep breath, walk away, saying "please stop", ignore, and find a new friend. 
+
+
 ***
 <h3> Web Resources </h3>
 
