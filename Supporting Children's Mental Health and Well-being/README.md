@@ -7,7 +7,7 @@ There are various ways to support and provide for our students overall well-bein
 
 While reading ***Culturally Responsive Teaching and The Brain*** by Zaretta Hammond in EDUC 625, I learned important themes and ideas for supporting students overall wellbeing. I was able to implement what I learned throughout my experience student teaching.
 
-1. **Community Building**- Providing a space or enviornment where learners can flourish socially and intellectually. Students are more willing to take risks (be vulnerable) in settings that mirror their interests/ understandings (be intentional with classroom set up).
+1. **Community Building**- Providing a space or enviornment where learners can flourish socially and intellectually. Students are more willing to take risks (growth mindset) in settings that mirror their interests/ understandings (be intentional with classroom set up).
 2. **Relationships**- Gain students trust (peace circle, one-on-one, walk and talks).
 3. **Being Flexible**- What does the student need in that moment? (cozy corner, a snack, a break). 
  
@@ -26,3 +26,4 @@ During student teaching I was able to encourage students social and emotional gr
 
 >   1. https://drdansiegel.com/book/no-drama-discipline/ (No Drama Discipline)
 >   2. https://crtandthebrain.com/book/ (Culturally Responsive Teaching & The Brain)
+>   3. https://www.amazon.com/Magical-Yet-Angela-DiTerlizzi/dp/1368025625 (The Magical Yet)
