@@ -46,19 +46,18 @@ https://colostate.instructure.com/courses/125898/files/19878943?module_item_id=3
 Download Reading for CRA-these kids are out of control.pdf (5.53 MB)
 
 Tool kit for teaching :) https://colostate.instructure.com/courses/125898/files/19878938?module_item_id=3816108 Download ToolKit.pdf 
-
+(https://user-images.githubusercontent.com/105298169/167747705-79548034-acff-4dfc-b363-e1d6dac89fde.jpeg)
 Self reflection survey for culturally diverse teaching
 
 https://docs.google.com/forms/d/e/1FAIpQLSf0DPIiytTJClJlxPQ5-Nbpwk5Ok8LaC5Et8LwIQK_T1E1W2g/viewform
 
 Cultrurally relavant text for class![18199B48-C16A-4BC8-81A2-994022F463B2]
 rooms https://www.florenceisd.net/225697_4
-(https://user-images.githubusercontent.com/105298169/167747705-79548034-acff-4dfc-b363-e1d6dac89fde.jpeg)
 Teaching Race https://cft.vanderbilt.edu/guides-sub-pages/teaching-race/
 
 Resource Videos https://cft.vanderbilt.edu![18199B48-C16A-4BC8-81A2-994022F463B2]
-(https://user-images.githubusercontent.com/105298169/167747721-6197a414-e4b9-4a19-9a30-5fd58c924569.jpeg)
-/guides-sub-pages/effective-educational-videos/
+![18199B48-C16A-4BC8-81A2-994022F463B2](https://user-images.githubusercontent.com/105298169/167748059-2a731a1c-a96e-4720-b655-ba0e6f8f1680.jpeg)
+
 
 Inclusive Classrooms https://bokcenter.harvard.edu/inventory-inclusive-teaching-practices
 
