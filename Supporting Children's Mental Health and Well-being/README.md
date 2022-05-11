@@ -5,10 +5,10 @@
 There are various ways to support and provide for our students overall well-being. Fortunately, the courses throughout this program provided physical resources as well as real-life experiences (practicum and student teaching) to practice what we've learned. Specifically, classes such as EDUC 625 (Contexts of Schooling) and 687E (Student Teaching) were most helpful when learning how to support our students social and emotional well-being.
 
 
-While reading ***Culturally Responsive Teaching and The Brain*** by Zaretta Hammond in EDUC 625, I learned important themes for supporting students overall wellbeing. 
+While reading ***Culturally Responsive Teaching and The Brain*** by Zaretta Hammond in EDUC 625, I learned important themes and ideas for supporting students overall wellbeing. I was able to implement what I learned throughout my experience student teaching.
 
-1. **Safety**- Providing a space or enviornment where learners can flourish socially and intellectually. Students are more willing to take risks (be vulnerable) in settings that mirror their interests/ understandings. 
-2. 
+1. **Safety**- Providing a space or enviornment where learners can flourish socially and intellectually. Students are more willing to take risks (be vulnerable) in settings that mirror their interests/ understandings.
+2. **Relationships**- Gain students trust.
 
 ***
 <h3> Web Resources </h3>
