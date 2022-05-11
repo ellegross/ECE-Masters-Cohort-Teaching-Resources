@@ -51,9 +51,9 @@ Self reflection survey for culturally diverse teaching
 
 https://docs.google.com/forms/d/e/1FAIpQLSf0DPIiytTJClJlxPQ5-Nbpwk5Ok8LaC5Et8LwIQK_T1E1W2g/viewform
 
-Cultrurally relavant text for class![18199B48-C16A-4BC8-81A2-994022F463B2](https://user-images.githubusercontent.com/105298169/167747705-79548034-acff-4dfc-b363-e1d6dac89fde.jpeg)
+Cultrurally relavant text for class![18199B48-C16A-4BC8-81A2-994022F463B2]
 rooms https://www.florenceisd.net/225697_4
-
+(https://user-images.githubusercontent.com/105298169/167747705-79548034-acff-4dfc-b363-e1d6dac89fde.jpeg)
 Teaching Race https://cft.vanderbilt.edu/guides-sub-pages/teaching-race/
 
 Resource Videos https://cft.vanderbilt.edu![18199B48-C16A-4BC8-81A2-994022F463B2]
