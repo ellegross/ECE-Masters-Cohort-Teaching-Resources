@@ -5,7 +5,7 @@
 There are various ways to support and provide for our students overall well-being. Fortunately, the courses throughout this program provided physical resources as well as real-life experiences (practicum and student teaching) to practice what we've learned. Specifically, classes such as EDUC 625 (Contexts of Schooling) and 687E (Student Teaching) were most helpful when learning how to support our students social and emotional well-being.
 
 
-In EDUC 625 I  
+While reading ***Culturally Responsive Teaching and The Brain*** by Zaretta Hammond in EDUC 625,  
 
 ***
 <h3> Web Resources </h3>
