@@ -6,10 +6,10 @@ Throughout this program EDUC 625 (Contexts of Schooling) and 687E (Student Teach
 ***
 <h3> Web Resources </h3>
 
->   https://www.teacherspayteachers.com/Product/Motivation-Survey-find-out-what-ACTUALLY-motivates-your-toughest-students-3213200 (Reinforcement and Reward Motivation Survey)
+>   1. https://www.teacherspayteachers.com/Product/Motivation-Survey-find-out-what-ACTUALLY-motivates-your-toughest-students-3213200 (Reinforcement and Reward Motivation Survey)
 
 
 <h3> Books </h3>
 
->   https://drdansiegel.com/book/no-drama-discipline/ (No Drama Discipline)
->   https://crtandthebrain.com/book/ (Culturally Responsive Teaching & The Brain)
+>   1. https://drdansiegel.com/book/no-drama-discipline/ (No Drama Discipline)
+>   2. https://crtandthebrain.com/book/ (Culturally Responsive Teaching & The Brain)
